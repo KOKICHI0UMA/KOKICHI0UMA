@@ -38,7 +38,8 @@ I'm a Kokichi fictionkin, so please be mindful of that. Doubles please interact 
 <br>
   .
 <img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/297a3762-da30-48f2-aa99-efc214fa8d06" />
-<br>
+
+# DNI 🎲
 <br>
 Basic dni list.
 <br>
