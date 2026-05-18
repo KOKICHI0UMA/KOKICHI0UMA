@@ -49,7 +49,7 @@ Saiouma and Kokichi haters.
 <img width="1500" height="100" alt="image" src="https://github.com/user-attachments/assets/7a88a0fa-d2b7-46bd-b001-f78e3da8cb63" />
 <br>
 <br>
-I am mainly w2i, I don't talk in publix unless I'm with a group.
+I am mainly w2i, I don't talk in public unless I'm with a group.
 <br>
 <br>
 Join D.I.C.E today!/j
