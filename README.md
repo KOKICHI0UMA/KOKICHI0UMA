@@ -1,58 +1,57 @@
 <p div align="center">
-<img width="530" height="30" src="https://64.media.tumblr.com/565345544e4d5e79423718389ac13b4d/695afbcff27c3018-2a/s2048x3072/e092d4b59f6f304d9f77a2ac1b8ac8f703fc16d9.pnj"<img width="1767" height="141" alt="image" src="https://github.com/user-attachments/assets/a2e4e9cb-934e-4f5b-a0b4-04c318971e69" />
+<img width="500" height="300" alt="image" src="https://github.com/user-attachments/assets/1f769c9e-1a70-4dc6-9970-6bf81c80059c" />
 <br>
 <br>
-〣 
+Kichi/Kokichi
 <br>
 <br>
-Kokichi/Kichi
+Any pronouns
 <br>
 <br>
-<br>
-any
-<br>
-<br>
-<br>
-Kokichi Fictionkin - Doubles intwc
-<br>
-<br>
-<br>
-🎲
+Kokichi fiction kin. doubles int w caution
+<img width="735" height="374" alt="image" src="https://github.com/user-attachments/assets/279f156c-4c2e-4008-8b9a-34409be33f48" />
+<img width="1500" height="100" alt="image" src="https://github.com/user-attachments/assets/300a2d4a-3c28-4193-9569-38dfc18cfa6b" />
 
-.
-<img width="735" height="374" alt="image" src="https://github.com/user-attachments/assets/4ed30c62-b8f6-4547-a019-3f6e09d5e790" align="centre" />
 
-# GENERAL INFO 🎲
+# General info. 🎲
+<p align="centre">
 <br>
-Autistic please use tone tags!
-<br> 
-Multishipper and the biggest Saiouma shipper
+I am autistic, I may not understand tone through text sometimes. tone tags are appreciated
 <br>
-If I make a joke and you get uncomfortable/upset please tell me.
+I suffer with BPD, I have mood swings, I try my best not to snap but if I do, please do not take it to heart. I don't mean it.
 <br>
-Mood swings happen often. sorry in advance
+I'm a Kokichi fiction kin, please be weary of that! Doubles please interact with caution.
 <br>
-I do not share my problems unless we are close.
+I am a saiouma shipper! but i am open to many other ships!
 <br>
-I'm a Kokichi fictionkin, so please be mindful of that. Doubles please interact with caution <3
 <br>
-  .
-<img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/297a3762-da30-48f2-aa99-efc214fa8d06" />
+<br>
 
 # DNI 🎲
+<p align="centre">
 <br>
-Basic dni list.
+BASIC DNI LIST
 <br>
-Homophobes/any anti lgbtq+
 <br>
-Racists
+MAPs
 <br>
-Kokichi Haters
 <br>
-Ableists 
+Racists 
 <br>
-Darkshippers ect ect
 <br>
-<img width="734" height="244" alt="image" src="https://github.com/user-attachments/assets/85ca6091-ea89-407d-8847-2d71ec06a939" />
+Homophobes/anything anti-lgbtq+
 <br>
-<img width="530" height="30" src="https://64.media.tumblr.com/565345544e4d5e79423718389ac13b4d/695afbcff27c3018-2a/s2048x3072/e092d4b59f6f304d9f77a2ac1b8ac8f703fc16d9.pnj"<img width="1767" height="141" alt="image" src="https://github.com/user-attachments/assets/a2e4e9cb-934e-4f5b-a0b4-04c318971e69" />
+<br>
+Darkshippers ect
+<br>
+<br>
+Saiouma and Kokichi haters.
+<img width="1500" height="100" alt="image" src="https://github.com/user-attachments/assets/7a88a0fa-d2b7-46bd-b001-f78e3da8cb63" />
+<br>
+<br>
+I am mainly w2i, I don't talk in publix unless I'm with a group.
+<br>
+<br>
+Join D.I.C.E today!/j
+<img width="736" height="322" alt="image" src="https://github.com/user-attachments/assets/44ab7df2-b9a4-4dfb-8a9e-4ef06710227a" />
+
