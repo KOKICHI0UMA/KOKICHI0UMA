@@ -1,4 +1,6 @@
 <p div align="center">
+<img width="1280" height="128" alt="image" src="https://github.com/user-attachments/assets/34095d2e-ab0a-439e-8ae9-cf9c7e49e1ff" />
+
 <img width="500" height="300" alt="image" src="https://github.com/user-attachments/assets/1f769c9e-1a70-4dc6-9970-6bf81c80059c" />
 <br>
 <br>
@@ -54,4 +56,6 @@ I am mainly w2i, I don't talk in public unless I'm with a group.
 <br>
 Join D.I.C.E today!/j
 <img width="736" height="322" alt="image" src="https://github.com/user-attachments/assets/44ab7df2-b9a4-4dfb-8a9e-4ef06710227a" />
+
+<img width="1280" height="128" alt="image" src="https://github.com/user-attachments/assets/20df9cff-9770-44b1-a817-084bf6444555" />
 
