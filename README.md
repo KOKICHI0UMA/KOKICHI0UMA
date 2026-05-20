@@ -1,61 +1,56 @@
 <p div align="center">
-<img width="1280" height="128" alt="image" src="https://github.com/user-attachments/assets/34095d2e-ab0a-439e-8ae9-cf9c7e49e1ff" />
-
-<img width="500" height="300" alt="image" src="https://github.com/user-attachments/assets/1f769c9e-1a70-4dc6-9970-6bf81c80059c" />
+<img width="1500" height="100" alt="image" src="https://github.com/user-attachments/assets/8d53d684-106e-48bd-b183-fddece6c53c4" />
+<img width="735" height="374" alt="image" src="https://github.com/user-attachments/assets/18d7acc1-7b6c-4ba9-9125-f5de493cf804" />
+𓊆 ❀ ⁎⁺₊ ཐི♰ཋྀ ₊⁺⁎ ❀ 𓊇   
 <br>
 <br>
 Kichi/Kokichi
 <br>
 <br>
-Any pronouns
+Any prns!
 <br>
 <br>
-Kokichi fiction kin. doubles int w caution
-<img width="735" height="374" alt="image" src="https://github.com/user-attachments/assets/279f156c-4c2e-4008-8b9a-34409be33f48" />
-<img width="1500" height="100" alt="image" src="https://github.com/user-attachments/assets/300a2d4a-3c28-4193-9569-38dfc18cfa6b" />
-
-
-# General info. 🎲
-<p align="centre">
-<br>
-I am autistic, I may not understand tone through text sometimes. tone tags are appreciated
-<br>
-I suffer with BPD, I have mood swings, I try my best not to snap but if I do, please do not take it to heart. I don't mean it.
-<br>
-I'm a Kokichi fiction kin, please be weary of that! Doubles please interact with caution.
-<br>
-I am a saiouma shipper! but i am open to many other ships!
+Kokichi Fictkin!
 <br>
 <br>
-<br>
-
-# DNI 🎲
-<p align="centre">
-<br>
-BASIC DNI LIST
+𓊆 ❀ ⁎⁺₊ ཐི♰ཋྀ ₊⁺⁎ ❀ 𓊇   
+<img width="1500" height="100" alt="image" src="https://github.com/user-attachments/assets/241c0088-891a-4152-b0c5-7e4da4cf7110" />
+General Info. 🎲
 <br>
 <br>
-MAPs
+Autistic please use tone tags.
+<br>
+<br>
+I have BPD, I may experience mood swings, if I do snap please don't take it to heart, I don't mean it.
+<br>
+<br>
+I am a Kokichi fictkin, please be mindful of that! Doubles please interact with caution.
+<img width="1500" height="100" alt="image" src="https://github.com/user-attachments/assets/d3acafd8-8042-4015-b476-8d3d3356ddf0" />
+DNI. 🎲
+<br>
+<br>
+Basic DNI LIST
+<br>
+<br>
+Homophobes/any anti-lgbtq+
 <br>
 <br>
 Racists 
 <br>
 <br>
-Homophobes/anything anti-lgbtq+
-<br>
-<br>
 Darkshippers ect
 <br>
 <br>
-Saiouma and Kokichi haters.
-<img width="1500" height="100" alt="image" src="https://github.com/user-attachments/assets/7a88a0fa-d2b7-46bd-b001-f78e3da8cb63" />
+Kokichi Haters
 <br>
 <br>
-I am mainly w2i, I don't talk in public unless I'm with a group.
+MAPS
 <br>
 <br>
-Join D.I.C.E today!/j
-<img width="736" height="322" alt="image" src="https://github.com/user-attachments/assets/44ab7df2-b9a4-4dfb-8a9e-4ef06710227a" />
-
-<img width="1280" height="128" alt="image" src="https://github.com/user-attachments/assets/20df9cff-9770-44b1-a817-084bf6444555" />
+Saiouma antis.
+<img width="1500" height="100" alt="image" src="https://github.com/user-attachments/assets/09def813-d92b-44db-8104-46e8b19d5e8b" />
+<img width="736" height="343" alt="image" src="https://github.com/user-attachments/assets/c1babe2b-2f73-4467-b6bf-30ebac67c8af" />
+<img width="1500" height="100" alt="image" src="https://github.com/user-attachments/assets/2fa7eae7-46ce-4264-8113-4b0af572de38" />
+JOIN D.I.C.E today!/j
+<img width="1500" height="100" alt="image" src="https://github.com/user-attachments/assets/fa542988-a71e-4222-abbe-c1b74c07fbee" />
 
